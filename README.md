@@ -32,7 +32,7 @@ Sempre em busca de novos desaios para aprimorar minhas habilidades.
 
 ## 📫 Contato
 
-- LinkedIn[Douglas Barankievicz](http://linkedin.com/in/douglas-barankievicz-a42132358)  
+- LinkedIn: [Douglas Barankievicz](http://linkedin.com/in/douglas-barankievicz-a42132358)  
 - Email: douglasbarankdev@gmail.com
 
 ---
